@@ -44,7 +44,7 @@ Misture até formar uma massa razoavelmente grudenta e macia.
 Em seguida, molde os pãezinhos no tamanho desejado, dispondo-os em uma assadeira com distância mínima de 2 dedos entre eles.
 ```
 
-5º passo![Temporizador](https://kitchenaid2.vtexassets.com/arquivos/blog-icon-clock-timer-text.svg)Iniciar preparo
+5º passo
 
 ```
 Leve para assar em forno preaquecido a 180°C de 25 a 30 minutos, ou até dourar.
